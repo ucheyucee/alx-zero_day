@@ -1,1 +1,1 @@
-not empty
+school is fun
